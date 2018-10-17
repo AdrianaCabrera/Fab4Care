@@ -1,0 +1,2 @@
+# Fab4Care
+'Fabrication for Care focuses on the development of new technologies applied in surfaces and material prototyping, in their broad range of applications, from the textile industry, material sustainable production and the wearable assistive devices market.This program is calling for applicants interested in the human-centred approach, interrogating the role of digital fabrication in the society and the new era of digital craftsmanship.We will focus on the development of wearable devices for people with disabilities. 
